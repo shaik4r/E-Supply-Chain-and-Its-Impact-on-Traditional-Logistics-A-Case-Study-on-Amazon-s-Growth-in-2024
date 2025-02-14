@@ -1,0 +1,2 @@
+# E-Supply-Chain-and-Its-Impact-on-Traditional-Logistics-A-Case-Study-on-Amazon-s-Growth-in-2024
+This research investigates Amazon’s innovative supply chain management strategies and their transformative impact on traditional logistics in India. The study explores the role of cutting-edge technologies, such as AI, robotics, and automation, in optimizing operations, reducing costs, and enhancing customer satisfaction.
